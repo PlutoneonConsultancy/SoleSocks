@@ -1,2 +1,5 @@
-# Axis_Zed
-Axis_Zed is the first electronic project from 2012 by Andrew J Shepherd
+Step into pure comfort, stride with soleful style.
+
+# Sole Socks 
+
+the socks with sole.
